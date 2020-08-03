@@ -1,1 +1,1 @@
-![](./orindance.gif)
+![](https://github.com/blackrose514/blackrose514/blob/master/orindance.gif)
